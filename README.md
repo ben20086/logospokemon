@@ -1,2 +1,2 @@
 # logospokemon
-pokemon quetzal rom hack 
+logos pokemon showdown
